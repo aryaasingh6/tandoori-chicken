@@ -1,0 +1,13 @@
+3 Tbsp vegetable oil
+1 teaspoon ground coriander
+1 teaspoon ground cumin
+1 teaspoon ground turmeric
+1 teaspoon cayenne
+1 Tbsp garam masala
+1 Tbsp sweet (not hot) paprika
+1 cup plain yogurt (can sub buttermilk)
+2 Tbsp lemon juice
+4 minced garlic cloves
+2 Tbsp minced fresh ginger
+1 teaspoon salt
+4 whole chicken legs (drumsticks and thighs), or its equivalent, skinless, bone-in
